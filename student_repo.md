@@ -2,3 +2,7 @@
 لطفا فقط آدرس خود را اضافه کنید و از تغییر بقیه مطالب خودداری کنید.
 
 Hossein Behdani https://github.com/HosseinBehdani/mabahes-vizhe
+https://github.com/zahra-azd/mabahes-vizheh1  (زهراعلیزاده)
+(محمدرضا زینعلی) (https://github.com/mohamadreza2780/special-topics)
+
+محمدمهدی مسلم (https://github.com/sabrsbz/Mabahes-v.git)
